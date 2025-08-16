@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sagardroid007
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning BCA 3rd year in Soundarya Institute of Management and Sciences
+- 🌱 I’m currently learning MCA 3rd year in Dayanand Sagar Academy of Technology and Management 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me
 - Email:thesagardroid@gmail.com
